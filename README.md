@@ -1,4 +1,5 @@
 ### Hi there :salut_main:
+![bannerOkp4](/banner.png)
 I am an Agriculture Engineer :tournesol: specialised in communication and digital tools (website, social networks, graphic design, etc.).
 I am currently the founder of RN20 (https://rn20.digital) a communication agency.
 I am also Communication and Marketing Manager at OKP4.
