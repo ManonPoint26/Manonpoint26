@@ -1,5 +1,6 @@
 
-![bannerOkp4](/banner.png)
+![image](https://github.com/ManonPoint26/Manonpoint26/assets/107842326/5eeef7b1-321e-4599-9c4d-289c6fbc493f)
+
 👋 Hi, I’m **Manon Point**  
 
 
